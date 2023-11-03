@@ -8,7 +8,7 @@ Most *popular* & refreshing drinks for asians.
 
 ## Easy to Make
 
-* Time-consuming 
+* Time-consuming
 * Full of antioxidants
 
 ## Ingredients
